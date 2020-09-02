@@ -1,3 +1,1 @@
-qwertyuiopasdfghjklzxcvbnm abcdefghijklmnopqrstuvwxyz
-f wef GVQERVqwvqeQE WDWVWEQAcfevVbqwSDq AADABvfadvdeb
-3QgKDq4woathg whed[gh{q 3GHEAHoviehwo[AEWHioaheRSH[OB{  rwhio
+prepare a birthday present for all the teachers
